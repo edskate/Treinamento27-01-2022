@@ -1,2 +1,9 @@
 # Treinamento27-01-2022
- trreinamentp27
+
+## treinamentp27
+
+## Aprendendo Inglês como?
+
+- Forma Audio Inglês
+- escolha o gene
+- reaja  com o filme em ingles
